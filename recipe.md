@@ -30,3 +30,5 @@ When we filmed this we all ended up devouring this for breakfast as it was just 
 3. While the mushrooms are cooking, make your litre of stock and bring to a boil in a large pot, reduce to a simmer and whisk in 2 tbsp tamari, almond butter, the curry paste/ hp spicy pesto or harissa, the tin of coconut milk and bring to a simmer. Add the noodles and tenderstem broccoli and simmer for approx 4 minutes until the broccoli and noodles are just cooked.
 4. Using tongs transfer the noodles and broccoli to serving bowls and pour over the coconut broth. Top with the ginger mushrooms and peppers, garnish with the scallions, the remaining red chili, a few coriander leaves and a squeeze of lime juice.
 5. We also like to sprinkle over some sesame seeds to garnish.
+
+Poging twee!
